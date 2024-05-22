@@ -5,3 +5,4 @@
 ![](https://media.tenor.com/qs3mLbYd3T0AAAAM/one-piece-white-beard.gif)
 ![](https://media.tenor.com/vYCm0PcP0HEAAAAM/ace.gif)
 ![](https://media.tenor.com/M5rWLxu-jOUAAAAM/katakuri-whole.gif)
+![](https://media.tenor.com/EmlfXr2fcuQAAAAM/law-imba.gif)

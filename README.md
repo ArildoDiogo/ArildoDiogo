@@ -2,3 +2,6 @@
 ![](https://media.tenor.com/cOhgxKZrGqQAAAAM/zoro-one-piece.gif)
 ![](https://media.tenor.com/q1XJU0nG-JYAAAAM/sanji.gif)
 ![](https://media.tenor.com/PctOsJQDTfAAAAAM/usopp.gif)
+![](https://media.tenor.com/qs3mLbYd3T0AAAAM/one-piece-white-beard.gif)
+![](https://media.tenor.com/vYCm0PcP0HEAAAAM/ace.gif)
+![](https://media.tenor.com/M5rWLxu-jOUAAAAM/katakuri-whole.gif)
